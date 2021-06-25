@@ -1,0 +1,4 @@
+- 👋 Hi, this is Anindita
+- 👀 I’m interested in learning new languages and discovering new things which are not yet known to the mankind
+- 🌱 I’m currently doing B.tech in ECE
+- 📫 You can reach me anytime at aninditasardar3@gmail.com
